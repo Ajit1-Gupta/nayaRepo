@@ -1,2 +1,2 @@
 # nayaRepo
-kux sikhal jata
+kux sikhal jata avi la ok
